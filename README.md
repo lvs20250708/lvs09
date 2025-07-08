@@ -10,4 +10,4 @@
 
 平台提供各种精选视频资源，涵盖精品欧洲、欧美久久精品以及国产精品高清视频等，满足不同观众的需求。所有资源都支持高清播放、快速加载，带来无广告、无干扰的流畅观看体验，让您随时随地享受最佳的视觉享受。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/lvs20250708/lvs09 ）</span>
